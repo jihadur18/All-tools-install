@@ -1,1 +1,3 @@
-# All-tools-install
+# ❤️‍🔥All-tools-install❤️‍🔥
+
+ #### One click installation 
